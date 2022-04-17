@@ -1,532 +1,580 @@
+[Tinhte](/)
 
-
-![Sale giữa tháng 15.4](https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5937052_Masthead_Hero.jpg) ![Java
-Media](/static/images/java.png)
-
-![Sale giữa tháng 15.4](https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5937059_Masthead_MB.jpg)
-
-![Java Media](/static/images/java.png)
-
-Tinhte
-
-Tải app Tinhte
+[Tải app Tinhte](/app/)
 
   
 
-Home  Creator
+Home[Creator](/tinhte-creator)[ForU](/foru)
 
-ForU
+Tinhte Fact[Xem tất cả](/fact)
 
-Tinhte Fact  Xem tất cả
-
-\+
+[+
 
 Tạo fact mới
 
-![Nhà anh nhiều Hạt Hạnh Nhân các chú thích thì anh cho :\)\)\)]()
+](/login)
 
-![hvdung1112](https://photo2.tinhte.vn/data/avatars/m/1743/1743038.jpg?1598707629)
+![Chất âm vượt xa tầm
+tiền](https://imgproxy.k7.tinhte.vn/1KeZXjmbCBlYVNpIfndCl0KpUYm2Gn0wfHZ8PSVRUuk/w:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951201_image.jpg)
 
-hvdung1112
+[![drogba](https://photo2.tinhte.vn/data/avatars/m/307/307868.jpg?1394077624)](/profile/drogba.307868/)drogba
 
-![Quán nhậu bất ổn...]()
+![Còn một yếu tố rất quan trọng là anh em ngủ với ai
+nữa......](https://imgproxy.k7.tinhte.vn/4yZkC8G3tAZWgMUHgKdcXvDWw81E8sWagjMUvSIumHQ/w:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951193_60d3ce6744c69071bf6a883c5405545f.jpg)
 
-![Góc cô
-đơn](https://photo2.tinhte.vn/data/avatars/m/2888/2888013.jpg?1646295479)
+[![Góc cô
+đơn](https://photo2.tinhte.vn/data/avatars/m/2888/2888013.jpg?1646295479)](/profile/goc-
+co-don.2888013/)Góc cô đơn
 
-Góc cô đơn
+![PES 2019 đã cài patch anh em thấy Việt Nam như thế nào...!!! Máy laptop cùi
+nên không theo đú
+2022.](https://imgproxy.k7.tinhte.vn/qzoj6EprKuLt2siw6o4UhlgLap4D2cqwauaaZwiHRkI/w:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951187_image.jpg)
 
-![Hàng đã về :\)\) Lồng rang hạt
-;\)\)](https://imgproxy.k7.tinhte.vn/LUqxN1LTHSpODRgkuLYVIXWHdPvBORvcbPtugGUwHzE/h:400/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947391_image.jpg)
+[![Lee
+Chau](https://photo2.tinhte.vn/data/avatars/m/1613/1613377.jpg?1499313499)](/profile/lee-
+chau.1613377/)Lee Chau
 
-![deathoralive](https://photo2.tinhte.vn/data/avatars/m/32/32386.jpg?1442122669)
+![Windows 11 không phổ biến bằng windows
+XP](https://imgproxy.k7.tinhte.vn/1P8Ltafu-
+_KRzdsCVa7V1sbplQXAzuiuMybfGevYt2U/w:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951182_image.jpg)
 
-deathoralive
+[![Lê
+♻️Văn](https://photo2.tinhte.vn/data/avatars/m/2152/2152924.jpg?1583774787)](/profile/le-♻️van.2152924/)Lê
+♻️Văn
 
-![Cuộc chiến Mùa Đông, Nga tiêu hao 200.000 binh \(so với 25k bên PL\). Bà tt
-Phần Lan chỉ nhắc lại
-cho](https://imgproxy.k7.tinhte.vn/_5QWvVCmJU7fTBDMan_JV_aQIgQXhozlIhvnQ8mTw5E/h:400/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947388_image.jpg)
+![Có cty bác nào bên nhân sự lên danh sách triển khai vụ này
+chưa?](https://imgproxy.k7.tinhte.vn/JbcUbQBTzKnb3pbfWePsj5ETiTpqz3O1CBpc4YE3otU/h:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951181_image.jpg)
 
-![damdam33
-☑️](https://photo2.tinhte.vn/data/avatars/m/2868/2868772.jpg?1643989922)
+[![nefertem](https://photo2.tinhte.vn/data/avatars/m/2387/2387808.jpg?1623034546)](/profile/nefertem.2387808/)nefertem
 
-damdam33 ☑️
+![Nông dân Ukraine kéo xe tăng về, lính Nga kéo xe hút bồn cầu
+về](https://imgproxy.k7.tinhte.vn/wGJqVeUvG0tbOpshiB33R2o9Aif6nZkE4F3XMto3eN4/w:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951180_FB_IMG_1650175111446.jpg)
 
-![Nghe tàu Thổ Nhỉ Kỳ cứu được 54tt. Còn lại 445tt thì thần biển cứu
-:sob:](https://9932704de5fc5c8.cmccloud.com.vn/videos/2022/04/5947373/gif/5947373_571ab0d83c3fade006f235942975ca0c.gif)
+[![thienvk](https://photo2.tinhte.vn/data/avatars/m/47/47638.jpg?1562384555)](/profile/thienvk.47638/)thienvk
 
-![damdam33
-☑️](https://photo2.tinhte.vn/data/avatars/m/2868/2868772.jpg?1643989922)
+![Lẩu trưa của nóc nhà! Mời anh em Tinh Tế
+nhé](https://imgproxy.k7.tinhte.vn/kfNkVAQV4QpaE3ehL1NslLLjlrhRB9JB0eqolY4_gCA/w:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951172_image.jpg)
 
-damdam33 ☑️
+[![Huỳnh
+Luân](https://photo2.tinhte.vn/data/avatars/m/1898/1898303.jpg?1636251422)](/profile/huynh-
+luan.1898303/)Huỳnh Luân
 
-![Tiếp tục series "Ứng dụng của công nghệ chân không" nha mọi người
-<3](https://imgproxy.k7.tinhte.vn/zs9hGaFKBIHL8Ytpxdkd8_KgVMvjYfMFFoodIBQhexw/h:400/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947371_UNG_DUNG_CUA_CONG_NGHE_CHAN_KHONG_P2.jpg)
+![Trưa CN
+!!!](https://imgproxy.k7.tinhte.vn/KdSe1hvPH4ylGeJj_djCayDOluTEtGfXxlEs49VxwKY/h:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951169_FF55B84D-9031-4CDF-8A71-35214E076E1F.jpg)
 
-![Thao Nguyen
-Phuong](https://tinhte.vn/styles/default/TinhteMods/avatars/avatar_female_3.png)
+[![Apple thần
+thánh](https://photo2.tinhte.vn/data/avatars/m/2142/2142410.jpg?1483945789)](/profile/apple-
+than-thanh.2142410/)Apple thần thánh
 
-Thao Nguyen Phuong
+![Sony :\)](https://imgproxy.k7.tinhte.vn/sjxhUnvYTUtp3si3mW_N0YwD-
+TJOtOYOCwm0DYsK12I/w:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951158_image.jpg)
 
-![mình sẽ phân tích rõ những sai lầm phổ biến ra mà hầu như bài viết này và
-nhiều người còn mắc
-sai...](https://imgproxy.k7.tinhte.vn/r_f3k53Q9TTiMQf6T_8Jd45DdhWwcfWKTm3g0IWqwZg/h:400/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947370_z3341171549776_d3cd9b68d09de7872be207a3cd29737a.jpg)
+[![hongphuc1992](https://photo2.tinhte.vn/data/avatars/m/1260/1260693.jpg?1394077624)](/profile/hongphuc1992.1260693/)hongphuc1992
 
-![Bắp Xào Bơ
-Tỏi](https://photo2.tinhte.vn/data/avatars/m/2413/2413493.jpg?1640924465)
+![Chị rất dứt
+khoát](https://9932704de5fc5c8.cmccloud.com.vn/videos/2022/04/5951157/gif/5951157_d3c4ec7d38762b669111b5d46d1fa8d9.gif)
 
-Bắp Xào Bơ Tỏi
+[![BRAND9057](https://photo2.tinhte.vn/data/avatars/m/2451/2451109.jpg?1638069747)](/profile/brand9057.2451109/)BRAND9057
 
-![Video mở hộp Vivo X Fold, chiếc smartphone màn hình gập
-mới](https://9932704de5fc5c8.cmccloud.com.vn/videos/2022/04/5947358/gif/5947358_880df41a285daec6b99d6a5e86a904dc.gif)
+![Cuối
+từng](https://imgproxy.k7.tinhte.vn/mjFhrWNFYaJQVwdyM58rkGCsfkWMIPY5ieqdhU1JOso/h:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951151_image.jpg)
 
-![Góc cô
-đơn](https://photo2.tinhte.vn/data/avatars/m/2888/2888013.jpg?1646295479)
+[![Viva Đây
+Nè](https://photo2.tinhte.vn/data/avatars/m/2905/2905644.jpg?1648171956)](/profile/viva-
+day-ne.2905644/)Viva Đây Nè
 
-Góc cô đơn
+![Trà
+trưa](https://imgproxy.k7.tinhte.vn/_F4OgJ3_HRLHypfpfXtLanA7tRQSInusOecxXquiCWw/h:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951145_image.jpg)
 
-![Rồi UAV thương hiệu Mẽo, sẽ đến U trong vài này tới. Xong
-luôn](https://9932704de5fc5c8.cmccloud.com.vn/videos/2022/04/5947351/gif/5947351_bb2a3659caa7621b6f352248a64b7883.gif)
+[![Lê
+♻️Văn](https://photo2.tinhte.vn/data/avatars/m/2152/2152924.jpg?1583774787)](/profile/le-♻️van.2152924/)Lê
+♻️Văn
 
-![damdam33
-☑️](https://photo2.tinhte.vn/data/avatars/m/2868/2868772.jpg?1643989922)
+![Nga ngố lại ghép rồi chứ lính U cà na sao có thể bị bắt như vậy
+được](https://imgproxy.k7.tinhte.vn/-Q-oisZdRd0u_HpC0psZOxdWTyKR_BJCd9QUtEAVeGM/h:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951144_image.jpg)
 
-damdam33 ☑️
+[![Nicholas
+Woo](https://photo2.tinhte.vn/data/avatars/m/2109/2109782.jpg?1648386764)](/profile/nicholas-
+woo.2109782/)Nicholas Woo
 
-![Bài này hay nè, mời anh em vào xem
-nhé....](https://imgproxy.k7.tinhte.vn/ZB0ZcaZbSshnINOmsXf5DPyuD1vPVB1D0V4FGH43Xjk/w:400/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947349_43f091a12d2cf404b93e435b38e16c1e.png)
+![Quá quen thuộc trong 5 năm qua, mỗi năm cỡ 6 lần
+..](https://imgproxy.k7.tinhte.vn/5m8geanJOcD2CffkFY_Z12Z7TufHIkRHol9eyOUw1ao/w:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951099_image.jpg)
 
-![Li
-Guoqing](https://photo2.tinhte.vn/data/avatars/m/2844/2844048.jpg?1648813628)
+[![BRAND9057](https://photo2.tinhte.vn/data/avatars/m/2451/2451109.jpg?1638069747)](/profile/brand9057.2451109/)BRAND9057
 
-Li Guoqing
+![Trên tay Galaxy s22 Ultra xanh
+lè](https://imgproxy.k7.tinhte.vn/zXhwGWCkmmtEWDxoqvwmVQzEHL550beFHxarYwgXEo4/h:400/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951098_image.jpg)
 
-![Game tặng iPad ở Group Tinh tế Facebook
-https://www.facebook.com/groups/Grouptinhte/permalink/3606](https://imgproxy.k7.tinhte.vn/ybU9fL0fSVMyzyhsqcUBJbojLFQjFOWjzIAn50Zw2BU/h:400/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947348_image.jpg)
+[![Lê
+♻️Văn](https://photo2.tinhte.vn/data/avatars/m/2152/2152924.jpg?1583774787)](/profile/le-♻️van.2152924/)Lê
+♻️Văn
 
-![Heo
-Sữa.](https://photo2.tinhte.vn/data/avatars/m/2030/2030412.jpg?1560144057)
-
-Heo Sữa.
-
-![Drone cảm tử tăng hiệu suất diệt xe lên kinh khủng. Thấy cảc vết trắng lao
-xuống trong
-clip.](https://9932704de5fc5c8.cmccloud.com.vn/videos/2022/04/5947339/gif/5947339_e79ca39c8e2cf4911c0d84ebc91c711f.gif)
-
-![damdam33
-☑️](https://photo2.tinhte.vn/data/avatars/m/2868/2868772.jpg?1643989922)
-
-damdam33 ☑️
-
-![The song that assembles some lost memory pieces of the
-past.](https://imgproxy.k7.tinhte.vn/BvBdTMLUQTHxr9mqyzyYZz2PIt08jrd39BtWHHG3wmc/w:400/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947340_1784110D-EDF0-46C8-BB22-1F68680E343D.jpg)
-
-![airwalker](https://photo2.tinhte.vn/data/avatars/m/2543/2543950.jpg?1551420084)
-
-airwalker
-
-![Tại sao iphone tra cứu/dịch thuật không có tiếng anh -> tiếng việt vậy mọi
-người, mình dùng
-iphone](https://imgproxy.k7.tinhte.vn/whiGfPB8ySBi5CKCJmGMukkrvr1AFLfaaxvWXeSm6Ns/h:400/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947336_image.jpg)
-
-![Trịnh Phước
-Bình](https://photo2.tinhte.vn/data/avatars/m/2555/2555530.jpg?1554655555)
-
-Trịnh Phước Bình
-
-![Tại sao
-?](https://imgproxy.k7.tinhte.vn/_m4ffgsLBVe6E80GjE7Rp3Y1M2D61umF2Cqp_GykW1c/w:400/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947332_vf9-9ba4.png)
-
-![Bucky Ngạo
-Nghễ](https://tinhte.vn/styles/default/TinhteMods/avatars/avatar_male_1.png)
-
-Bucky Ngạo Nghễ
-
-__
+ __
 
 Bấm vào để xem nhiều hơn
 
-  1. ![3 ngày vòng quanh Phú Yên: Vùng đất tuyệt đẹp, con người dễ mến và đồ ăn ngon](https://photo2.tinhte.vn/data/attachment-files/2022/04/5945624_tinhte_phu_yen_trip_39.jpg)
+  1. [![Vì sao mình sẽ tiếp tục dùng LG 34" 5K Ultrawide chứ không đổi qua Apple Studio Display](https://photo2.tinhte.vn/data/attachment-files/2022/04/5950368_LG_34WK95U_W_vs_apple_studio_display_tinhte_cuhiep12.jpg)](https://tinhte.vn/thread/vi-sao-minh-se-tiep-tuc-dung-lg-34-5k-ultrawide-chu-khong-doi-qua-apple-studio-display.3504991/?ta_from_block=home_featured_threads)
 
-Trần Hoàng Long.
+cuhiep
 
-####  3 ngày vòng quanh Phú Yên: Vùng đất tuyệt đẹp, con người dễ mến và đồ ăn
-ngon
+#### [Vì sao mình sẽ tiếp tục dùng LG 34" 5K Ultrawide chứ không đổi qua Apple
+Studio Display](https://tinhte.vn/thread/vi-sao-minh-se-tiep-tuc-dung-
+lg-34-5k-ultrawide-chu-khong-doi-qua-apple-studio-
+display.3504991/?ta_from_block=home_featured_threads "Vì sao mình sẽ tiếp tục
+dùng LG 34" 5K Ultrawide chứ không đổi qua Apple Studio Display")
 
-  2. ![Chơi điện tử cùng Mac Studio M1 Max: Tại sao lại không?](https://photo2.tinhte.vn/data/attachment-files/2022/04/5944284_photo_2022-04-12_19-17-01.jpg)
+[](https://tinhte.vn/thread/vi-sao-minh-se-tiep-tuc-dung-lg-34-5k-ultrawide-
+chu-khong-doi-qua-apple-studio-
+display.3504991/?ta_from_block=home_featured_threads)
+
+  2. [![Tuyển Việt Nam vừa ra mắt trong bản cập nhật eFootball 2022, anh em có thấy giống không?](https://photo2.tinhte.vn/data/attachment-files/2022/04/5950919_Cover_PES.jpg)](https://tinhte.vn/thread/tuyen-viet-nam-vua-ra-mat-trong-ban-cap-nhat-efootball-2022-anh-em-co-thay-giong-khong.3505274/?ta_from_block=home_featured_threads)
 
 P.W
 
-####  Chơi điện tử cùng Mac Studio M1 Max: Tại sao lại không?
+#### [Tuyển Việt Nam vừa ra mắt trong bản cập nhật eFootball 2022, anh em có
+thấy giống không?](https://tinhte.vn/thread/tuyen-viet-nam-vua-ra-mat-trong-
+ban-cap-nhat-efootball-2022-anh-em-co-thay-giong-
+khong.3505274/?ta_from_block=home_featured_threads "Tuyển Việt Nam vừa ra mắt
+trong bản cập nhật eFootball 2022, anh em có thấy giống không?")
 
-Mac Studio phải thừa nhận là một hệ thống máy tính rất mạnh dành cho cộng đồng
-những người làm nội dung sáng tạo, từ âm nhạc, đồ họa cho đến ảnh và video. Và
-với sức mạnh như vậy, không có lý do gì chúng ta không đem một trong những cỗ
-máy tính desktop với hiệu năng ấn tượng để chạy một trong những dạng phần mềm
-phức tạp nhất, kết hợp hoàn hảo việc “bào” sức mạnh của cả CPU lẫn GPU để khắc
-họa những thế giới ảo, đó chính là game? Vì thế trong bài tiếp theo của series
-“Chơi điện tử cùng…”, mời anh em đến với một thiết bị…
+[Hôm vừa rồi Konami đã cập nhật Season 1 cho tựa game bóng đá miễn phí
+eFootball 2022. Sau quãng hơn nửa năm ra mắt, dần dần những vấn đề liên quan
+đến đồ họa, cụ thể hơn là những trục trặc trong mô hình gương mặt các cầu thủ
+nổi tiếng thế giới đã dần được cải thiện, để Konami có thể rảnh tay cập nhật
+những nội dung mới. Một trong số đó chính là sự kiện “Đường đến World Cup
+Qatar 2022 khu vực châu Á”, với những đội bóng lọt vào vòng loại khu vực.
+Trong số đó dĩ nhiên có tuyển Việt Nam. Rõ ràng tiếng vang của những học trò
+thầy Park vài năm nay…
 
-  3. ![Thông báo kết thúc cuộc thi review laptop Windows, mời theo dõi cuộc thi mới sắp diễn ra](https://photo2.tinhte.vn/data/attachment-files/2022/04/5947084_Cv_1.png)
+](https://tinhte.vn/thread/tuyen-viet-nam-vua-ra-mat-trong-ban-cap-nhat-
+efootball-2022-anh-em-co-thay-giong-
+khong.3505274/?ta_from_block=home_featured_threads)
 
-Gaohong
+  3. [![Review Đèn pin dã ngoại Alonefire H002 XPH50](https://photo2.tinhte.vn/data/attachment-files/2022/04/5949832_blob.jpg)](https://tinhte.vn/thread/review-den-pin-da-ngoai-alonefire-h002-xph50.3504915/?ta_from_block=home_featured_threads)
 
-####  Thông báo kết thúc cuộc thi review laptop Windows, mời theo dõi cuộc thi
-mới sắp diễn ra
+SoGetSu
 
-  4. ![Hướng dẫn đổi điểm Tinhte Rewards để nhận Voucher mua hàng trên Shopee dịp sale giữa tháng](https://photo2.tinhte.vn/data/attachment-files/2022/04/5945175_deal_Shopee_1.jpg)
+#### [Review Đèn pin dã ngoại Alonefire H002
+XPH50](https://tinhte.vn/thread/review-den-pin-da-ngoai-
+alonefire-h002-xph50.3504915/?ta_from_block=home_featured_threads "Review Đèn
+pin dã ngoại Alonefire H002 XPH50")
 
-Lê Huyền Vân
+[](https://tinhte.vn/thread/review-den-pin-da-ngoai-
+alonefire-h002-xph50.3504915/?ta_from_block=home_featured_threads)
 
-####  Hướng dẫn đổi điểm Tinhte Rewards để nhận Voucher mua hàng trên Shopee
-dịp sale giữa tháng
+  4. [![Ai đeo Apple Watch mùa hè cũng nên có 1 sợi solo loop](https://photo2.tinhte.vn/data/attachment-files/2022/04/5950758_B358C3F4-9C19-4545-A960-DED2CA20E8C9.jpeg)](https://tinhte.vn/thread/ai-deo-apple-watch-mua-he-cung-nen-co-1-soi-solo-loop.3505212/?ta_from_block=home_featured_threads)
 
-  5. ![Việt Nam tôi đẹp lắm - Chào mừng đến với Việt Nam! <3](https://photo2.tinhte.vn/data/attachment-files/2022/04/5946676_welcome_to_vietnam__thumbnail.jpg)
+airwalker
 
-dym2k8
+#### [Ai đeo Apple Watch mùa hè cũng nên có 1 sợi solo
+loop](https://tinhte.vn/thread/ai-deo-apple-watch-mua-he-cung-nen-co-1-soi-
+solo-loop.3505212/?ta_from_block=home_featured_threads "Ai đeo Apple Watch mùa
+hè cũng nên có 1 sợi solo loop")
 
-####  Việt Nam tôi đẹp lắm - Chào mừng đến với Việt Nam! <3
+[](https://tinhte.vn/thread/ai-deo-apple-watch-mua-he-cung-nen-co-1-soi-solo-
+loop.3505212/?ta_from_block=home_featured_threads)
 
-###  Tôi biết nhờ Tinh Tế
+  5. [![Tóm tắt loạt phim điện ảnh Transformers](https://photo2.tinhte.vn/data/attachment-files/2022/04/5950496_cover.jpg)](https://tinhte.vn/thread/tom-tat-loat-phim-dien-anh-transformers.3505120/?ta_from_block=home_featured_threads)
 
-![Tôi biết nhờ Tinh Tế](https://photo2.tinhte.vn/data/attachment-
-files/2022/03/5925030_Special.png)
+Nam Air
 
-![Java Media](/static/images/java.png)
+#### [Tóm tắt loạt phim điện ảnh Transformers](https://tinhte.vn/thread/tom-
+tat-loat-phim-dien-anh-
+transformers.3505120/?ta_from_block=home_featured_threads "Tóm tắt loạt phim
+điện ảnh Transformers")
 
-###  Tôi biết nhờ Tinh Tế
-
-![Tôi biết nhờ Tinh Tế](https://photo2.tinhte.vn/data/attachment-
-files/2022/03/5925030_Special.png)
-
-![Java Media](/static/images/java.png)
+[](https://tinhte.vn/thread/tom-tat-loat-phim-dien-anh-
+transformers.3505120/?ta_from_block=home_featured_threads)
 
   
 
 Xem nhanh
 
-Trải nghiệm nhanh với FIFA+: Kho nội dung khổng lồ về bóng đá nhưng chưa đặc
-sắc lắm
+[
 
-![Trải nghiệm nhanh với FIFA+: Kho nội dung khổng lồ về bóng đá nhưng chưa đặc
-sắc lắm](https://imgproxy.k7.tinhte.vn/vrLhA8233AskA2yx-pVdLcHn4lrJEusixF_-
-ulw7nVA/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947311_cover_fifaplus.png)
+Kem tản nhiệt cho CPU, GPU: Liquid Metal hay Thermal Paste?
 
-Ngày khởi đầu của cỗ máy Antikythera là 22 tháng 12 năm 178 trước CN?
+![Kem tản nhiệt cho CPU, GPU: Liquid Metal hay Thermal
+Paste?](https://imgproxy.k7.tinhte.vn/JIrDqPcjSQuFHB_sv8XgIXAhIrGb0iWrEURpOeT_wM4/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951154_cover_liquid_metal_thermal_paste_tinhte.jpg)](https://tinhte.vn/thread/kem-
+tan-nhiet-cho-cpu-gpu-liquid-metal-hay-thermal-
+paste.3505337/?ta_from_block=home_quick_news)
 
-![Ngày khởi đầu của cỗ máy Antikythera là 22 tháng 12 năm 178 trước
-CN?](https://imgproxy.k7.tinhte.vn/Mlw4etYElrte7aLOuqwlQOcNLuncuB5yTs_AK15UD1U/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5947133_cover_antikythera.jpg)
+[
 
-Chuyển dữ liệu iOS sang Android dễ dàng hơn với Switch to Android chính chủ
-của Google
+Chiếc "CasioAk" nhiều anh em yêu mến vừa được nâng cấp mạnh, giờ có cả Tough
+Solar lẫn Bluetooth
 
-![Chuyển dữ liệu iOS sang Android dễ dàng hơn với Switch to Android chính chủ
-của
-Google](https://imgproxy.k7.tinhte.vn/GyJomGIWZLPSZrLZyKdUyU6VT6KE7lLS318ymAuYgwY/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5946777_cover_Switch-to-Android-iOS-App.jpeg)
+![Chiếc "CasioAk" nhiều anh em yêu mến vừa được nâng cấp mạnh, giờ có cả Tough
+Solar lẫn Bluetooth](https://imgproxy.k7.tinhte.vn/sCRAEpQLUw5lCuGpM-
+FEzbfqVVTf5kgCpnOyfHqgGGo/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951047_Cover_Casio.jpeg)](https://tinhte.vn/thread/chiec-
+casioak-nhieu-anh-em-yeu-men-vua-duoc-nang-cap-manh-gio-co-ca-tough-solar-lan-
+bluetooth.3505303/?ta_from_block=home_quick_news)
 
-Anh em có thường sử dụng proxy server không, và là loại miễn phí hay trả tiền?
+[
 
-![Anh em có thường sử dụng proxy server không, và là loại miễn phí hay trả
-tiền?](https://imgproxy.k7.tinhte.vn/IjrudzErAwBymJBeHRIIyzOe30bFJs29Os2r2K1Cwt4/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5946655_cover_proxy_server_free_tinhte.jpg)
+Tuyển Việt Nam vừa ra mắt trong bản cập nhật eFootball 2022, anh em có thấy
+giống không?
 
-14/04: Google Doodle tôn vinh hang Sơn Đoòng
+![Tuyển Việt Nam vừa ra mắt trong bản cập nhật eFootball 2022, anh em có thấy
+giống
+không?](https://imgproxy.k7.tinhte.vn/SgP2NBnScpg05dsl8yxBGufI5J2CVIC_JWif28f_YsU/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5950919_Cover_PES.jpg)](https://tinhte.vn/thread/tuyen-viet-nam-
+vua-ra-mat-trong-ban-cap-nhat-efootball-2022-anh-em-co-thay-giong-
+khong.3505274/?ta_from_block=home_quick_news)
 
-![14/04: Google Doodle tôn vinh hang Sơn
-Đoòng](https://imgproxy.k7.tinhte.vn/wK0c_-
-XSyS4icQA6MjMbv5noACoh1I8xB89h3g2QfmI/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5946383_cover_tinhte.jpg)
+[
 
-Anh xe ôm siêu công nghệ chạy không tính tiền
+Nâng cấp bộ nhớ cho MacBook 512GB chỉ 90 đô
 
-![Anh xe ôm siêu công nghệ chạy không tính
-tiền](https://imgproxy.k7.tinhte.vn/2fqrLBKtIZTmcBzMgrqQ2uiz-sVDBKl7snX-MkOy-
-gc/rs:fill:312:193:0/plain/https://9932704de5fc5c8.cmccloud.com.vn/videos/2022/04/5946159/gif/5946159_e2ccffe8d1a5253ede87a01df8c14af0.gif)
+![Nâng cấp bộ nhớ cho MacBook 512GB chỉ 90
+đô](https://imgproxy.k7.tinhte.vn/2B5Q2jZ76azGRhfyCysqNCajrf9Z5SYaijSbkKx_qs4/rs:fill:312:193:0/plain/https://9932704de5fc5c8.cmccloud.com.vn/videos/2022/04/5950839/gif/5950839_994ab32161b2f38d06d8e9aa17f8f6bd.gif)](https://tinhte.vn/thread/nang-
+cap-bo-nho-cho-macbook-512gb-chi-90-do.3505248/?ta_from_block=home_quick_news)
 
-Pipedream: Chính phủ Mỹ lên tiếng cảnh báo loại malware nhắm vào hệ thống điều
-khiển cơ sở hạ tầng
+[
 
-![Pipedream: Chính phủ Mỹ lên tiếng cảnh báo loại malware nhắm vào hệ thống
-điều khiển cơ sở hạ
-tầng](https://imgproxy.k7.tinhte.vn/DXyvLYF_AMDDQuhL4Na7-2_7cD3dtsViUpU2KNAo50U/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5946196_Cover_Hacker.jpg)
+Harley-Davidson Nightster 2022 chính thức: động cơ Revolution Max 975T, giá từ
+13.499 USD
 
-Những công nghệ giặt sấy nổi bật, máy ở nhà bạn có sở hữu không?
+![Harley-Davidson Nightster 2022 chính thức: động cơ Revolution Max 975T, giá
+từ 13.499
+USD](https://imgproxy.k7.tinhte.vn/LooTQLuW4sgEt_04TF6raFYD9xoNI6GpiibAcBWxn1U/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5950814_cover-Harley-Davidson-
+Nightster.jpg)](https://tinhte.vn/thread/harley-davidson-nightster-2022-chinh-
+thuc-dong-co-revolution-max-975t-gia-
+tu-13-499-usd.3503939/?ta_from_block=home_quick_news)
 
-![Những công nghệ giặt sấy nổi bật, máy ở nhà bạn có sở hữu
-không?](https://imgproxy.k7.tinhte.vn/cZBwZEnULrkgwQzuxWA3WnQ7lygPkH88fh1pZhN87RE/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5943189_cong_nghe_may_giat_8.jpg)
+[
 
-  
+Đánh giá pin iPad Air 5: gần 7 tiếng on screen, dư sức cho 1 ngày dùng
 
-###  Xu hướng
+![Đánh giá pin iPad Air 5: gần 7 tiếng on screen, dư sức cho 1 ngày
+dùng](https://imgproxy.k7.tinhte.vn/1sVqiWiMVRJtYYHDg6Sy43Fj_TzPPNS_qJiocazmacs/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5950802_cover.jpg)](https://tinhte.vn/thread/danh-gia-pin-ipad-
+air-5-gan-7-tieng-on-screen-du-suc-cho-1-ngay-
+dung.3503912/?ta_from_block=home_quick_news)
 
-#  1
+[
 
-Phải thay luôn màn hình MacBook vì dán miếng che webcam, anh em lưu ý!
+Tinhte Fact
 
-Lê Huyền Vân
+![Tinhte
+Fact](https://imgproxy.k7.tinhte.vn/V0lpyqejXXXrPFJwO5eeFGMxbthayY7pVjEAy68ui3c/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5950651_image.jpg)](https://tinhte.vn/thread/tinhte-
+fact.3505179/?ta_from_block=home_quick_news)
 
-#  2
+[
 
-3 ngày vòng quanh Phú Yên: Vùng đất tuyệt đẹp, con người dễ mến và đồ ăn ngon
+Evan Blass: Pixel Watch đã rất gần
 
-Trần Hoàng Long.
-
-#  3
-
-Trên tay pin sạc mini “thẻ atm” Wiwu JC-08 10000mAh
-
-vinius197
-
-#  4
-
-Dell M4800 – Huyền thoại Workstation và cách mình chọn máy tính Windows.
-
-joshungcom
-
-#  5
-
-Review Laptop Lenovo Ideapad 5 pro AMD 5800H sau 6 tháng sử dụng
-
-hvdung1112
-
-#  6
-
-Cướp, cướp nữa, cướp mãi
-
-Viva Đây Nè
+![Evan Blass: Pixel Watch đã rất
+gần](https://imgproxy.k7.tinhte.vn/aQIZeqaf317HuXp_fxpZhthEEvnfzlFbyk3ebM1MTJg/rs:fill:312:193:0/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5950650_cover_Pixel_Watch_tinhte.jpg)](https://tinhte.vn/thread/evan-
+blass-pixel-watch-da-rat-gan.3505177/?ta_from_block=home_quick_news)
 
   
 
-vinius197
+### Xu hướng
 
-joshungcom
+[#1
 
-hvdung1112
+Không cần ngủ tám tiếng mỗi đêm, theo một nghiên cứu mới
 
-Ngon Bổ Xẻ
+Li Guoqing
 
-Monster starxx
+](https://tinhte.vn/thread/khong-can-ngu-tam-tieng-moi-dem-theo-mot-nghien-
+cuu-moi.3503221/?ta_from_block=home_trending)[#2
 
-###  Bài Review mới nhất
+MBR và GPT là gì? Nên chọn chuẩn nào cho ổ đĩa ngày nay?
 
-\+ Viết bài review
+mig0
 
-![Review Ip12](https://photo2.tinhte.vn/data/attachment-
-files/2019/07/4728700_5.jpg)
+](https://tinhte.vn/thread/mbr-va-gpt-la-gi-nen-chon-chuan-nao-cho-o-dia-ngay-
+nay.3502165/?ta_from_block=home_trending)[#3
 
-phoabthi
+Đồ chơi mới nè anh em ơi.
 
-Review Ip12
+bao serbia
 
-![Review Ip12](https://photo2.tinhte.vn/data/attachment-
-files/2019/07/4728698_3.jpg)
+](https://tinhte.vn/thread/do-choi-moi-ne-anh-em-
+oi.3505080/?ta_from_block=home_trending)[#4
 
-bthiph
+Lần đầu dùng Apple Watch Series 6 44mm GPS
 
-Review Ip12
+tautenlatop
 
-![Làm gì với Voucher shopee 50k của
-Tinhte?](https://imgproxy.k7.tinhte.vn/_X7HlCGDBlgp5Qg-
-ls1er2k5oWYSwdIuXi1mIMQutj0/h:420/plain/https://i.ytimg.com/vi/rxv2DcqU5v0/mqdefault.jpg)
+](https://tinhte.vn/thread/lan-dau-dung-apple-watch-series-6-44mm-
+gps.3486900/?ta_from_block=home_trending)[#5
 
-hoangminh2018
+Review Chia tay Z Fold 3 để mua IP 12 thường
 
-Làm gì với Voucher shopee 50k của Tinhte?
+Meomun1602
 
-![Peridot trò chơi nuôi thú ảo mới sắp ra mắt của nhà sản xuất
-Pokemon Go](https://imgproxy.k7.tinhte.vn/e1EvcgesaFDtaBP_-
-eUsTnTm52RDi1c8TYl7d7DwCXM/h:420/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5946852_peridot.png)
+](https://tinhte.vn/thread/review-chia-tay-z-fold-3-de-mua-
+ip-12-thuong.3504535/?ta_from_block=home_trending)[#6
 
-doctailieu
+Review Trên tay Steamdeck 64GB đã về VN
 
-Peridot trò chơi nuôi thú ảo mới sắp ra mắt của nhà sản xuất Pokemon
-Go
+maquan
 
-![Trên tay pin sạc mini “thẻ atm” Wiwu JC-08
-10000mAh](https://imgproxy.k7.tinhte.vn/3PcaknD6ENk-
-rKG5tMY-y73TZIXoe7mlfjx98E-IlrU/h:420/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5946465_z3337167279762_042fb34c3243fde5985c0611dsdc84229.jpg)
-
-vinius197
-
-Trên tay pin sạc mini “thẻ atm” Wiwu JC-08 10000mAh
-
-![Review Cà phê Robusta Honey của Laven
-Coffee](https://imgproxy.k7.tinhte.vn/jLGYYdQ5hRTVjSh-
-cx1ecpRvz1UegF8hCr8JHDUUoXU/h:420/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5946381_blob.jpg)
-
-nguyenthienn12
-
-Review Cà phê Robusta Honey của Laven Coffee
-
-![Dell M4800 – Huyền thoại Workstation và cách mình chọn máy tính
-Windows.](https://imgproxy.k7.tinhte.vn/_mVHv_75zehwsPhg5KYo-
-GgEB4aUbY6-YuJaB152lpc/h:420/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5945736_Dell_m4800.png)
-
-joshungcom
-
-Dell M4800 – Huyền thoại Workstation và cách mình chọn máy tính Windows.
-
-![Review Laptop Asus A540UP Chiếc Laptop Mình Đang
-Sài](https://imgproxy.k7.tinhte.vn/geoEpoi9Xm3E_eyD7wL4JSWdKWudiaGcHNPVXRzZLQU/h:420/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5945656_blob.jpg)
-
-TaChaBa
-
-Review Laptop Asus A540UP Chiếc Laptop Mình Đang Sài
-
-![Sạc zin theo máy hay mua thêm riêng\(chính hãng\) dỏm lắm sao mà thấy nhiều
-anh em cứ tốn tiền
-mua...](https://imgproxy.k7.tinhte.vn/Zlp5YJzOtLISlRfLZVjz308K70e7SvrGQEZOAqqVJkk/h:420/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5945380_F6358B37-3028-4714-81A9-2A49DE61584E.jpg)
-
-xecatang
-
-Sạc zin theo máy hay mua thêm riêng(chính hãng) dỏm lắm sao mà thấy nhiều anh
-em cứ tốn tiền mua...
-
-![REVIEW LAPTOP ACER PREDATOR HELIOS 300 2021 SAU 4 THÁNG SỬ
-DỤNG](https://imgproxy.k7.tinhte.vn/3PNIY-
-Wn8j0hJY_lRZwTprOnXpTUioiRNh4Oghpb25o/h:420/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5945116_3eba9c308ed6408819c79.jpg)
-
-Monster starxx
-
-REVIEW LAPTOP ACER PREDATOR HELIOS 300 2021 SAU 4 THÁNG SỬ DỤNG
-
-  
-Xem tất cả
+](https://tinhte.vn/thread/review-tren-tay-steamdeck-64gb-da-ve-
+vn.3504715/?ta_from_block=home_trending)
 
   
 
-###  Video Tinh tế
+[](/tinhte-creator/about)
 
-  1. ####  Hướng dẫn đổi điểm Tinhte Rewards để nhận Voucher mua hàng trên Shopee dịp sale giữa tháng 
+[
 
-6:37  597  lượt xem
+Meomun1602
 
-  2. ####  Đánh giá Samsung Galaxy S22+ 
+](https://tinhte.vn/profile/meomun1602.2882846/)[
 
-15:14  3.453  lượt xem
+maquan
 
-  3. ####  Cuối tuần không làm việc thì mình đi đâu? Nấu ăn, dẫn ba đi chơi 
+](https://tinhte.vn/profile/maquan.2415/)[
 
-16:17  3.429  lượt xem
+bao serbia
 
-  4. ####  Chỉ có 40 triệu, có nên mua Apple Studio Display? #shorts 
+](https://tinhte.vn/profile/bao-serbia.2508657/)[
 
-59  2.601  lượt xem
+pro-k
 
-  5. ####  Trải nghiệm nhanh Subaru BRZ 2022: Nếu cần xe thể thao nhưng lại đi hàng ngày được thoải mái 
+](https://tinhte.vn/profile/pro-k.10844/)[
 
-15:21  11.041  lượt xem
+SoGetSu
 
-  6. ####  Apple Studio Display xài cho máy tính Windows được không? 
+](https://tinhte.vn/profile/sogetsu.1348038/)
 
-13:36  8.408  lượt xem
+### Bài Review mới nhất
 
-  7. ####  Trên tay SRWatch 9: lung linh, lộng lẫy có 9 triệu 
+[\+ Viết bài review](/review/editor)
 
-7:41  5.445  lượt xem
+[![Trên tay loa LED “Rực rỡ” sập sình theo nhạc WIWU Thunder
+P40](https://imgproxy.k7.tinhte.vn/QvIPG5LguVwnHNgaNyfH_ORlcVmN7Td2sReRPYE53i4/h:420/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5951152_z3344613712087_ec13602e896427bc723ae95904accd82.jpg)vinius197Trên
+tay loa LED “Rực rỡ” sập sình theo nhạc WIWU Thunder
+P40](https://tinhte.vn/thread/tren-tay-loa-led-ruc-ro-sap-sinh-theo-nhac-wiwu-
+thunder-p40.3505331/?ta_from_block=home_creator)
 
-  8. ####  Máy chiếu Beecube Xtreme 
+[![Đánh giá sơ Lenovo IdeaPad Slim 7 Pro: màn hình khá
+lớn](https://imgproxy.k7.tinhte.vn/LjXH3VoO52w46iZ7G5hogFStW9KeKqmREV3i1pFB_T8/h:420/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5950901_lenovo-idea-pad-slim-7-pro.png)doctailieuĐánh giá sơ
+Lenovo IdeaPad Slim 7 Pro: màn hình khá lớn](https://tinhte.vn/thread/danh-
+gia-so-lenovo-ideapad-slim-7-pro-man-hinh-kha-
+lon.3505262/?ta_from_block=home_creator)
 
-7:55  3.288  lượt xem
+[![Review Đánh giá Huawei Watch \(2015\) ở năm
+2022.](https://imgproxy.k7.tinhte.vn/D_RrPH1DM444mmAMAhdfd-
+GEhehUjw4mo_RD9Y_RrYI/h:420/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5950610_blob.jpg)Chung Nhựt PhátReview Đánh giá Huawei Watch
+(2015) ở năm 2022.](https://tinhte.vn/thread/review-danh-gia-huawei-
+watch-2015-o-nam-2022.3505166/?ta_from_block=home_creator)
 
-  9. ####  Đi làm đẹp mất vết xước trên xe luôn #shorts 
+[![Review Youtube của chính mình: có gì hay trên đó ? Youtube đề xuất cái gì
+cho mình xem
+?](https://imgproxy.k7.tinhte.vn/xub7cs5gxeqJN1fbsl_N6hj_9b4IxKZFsJAcm5O3JYo/h:420/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5950275_review_youtube.jpg)pro-kReview Youtube của chính mình:
+có gì hay trên đó ? Youtube đề xuất cái gì cho mình xem
+?](https://tinhte.vn/thread/review-youtube-cua-chinh-minh-co-gi-hay-tren-do-
+youtube-de-xuat-cai-gi-cho-minh-xem.3505075/?ta_from_block=home_creator)
 
-1:  4.879  lượt xem
+[![Đồ chơi mới nè anh em
+ơi.](https://imgproxy.k7.tinhte.vn/TvHZhDiTz4m5m2rhmVmXu7_BDNskqFmE95Of_SfbeGs/h:420/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5950311_DSCF8435.jpg)bao serbiaĐồ chơi mới nè anh em
+ơi.](https://tinhte.vn/thread/do-choi-moi-ne-anh-em-
+oi.3505080/?ta_from_block=home_creator)
+
+[![Trên tay ly đổi màu theo nhiệt độ, nhiều hình đẹp, thích hợp dùng cá nhân
+hay làm quà tặng](https://imgproxy.k7.tinhte.vn/Dyf7zfg1f0_pAAxYwTPqQpk-
+VMB9rXk0lZTGZZepZpk/h:420/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5950203_hinhnen.jpg)nkinhluanTrên tay ly đổi màu theo nhiệt độ,
+nhiều hình đẹp, thích hợp dùng cá nhân hay làm quà
+tặng](https://tinhte.vn/thread/tren-tay-ly-doi-mau-theo-nhiet-do-nhieu-hinh-
+dep-thich-hop-dung-ca-nhan-hay-lam-qua-
+tang.3505058/?ta_from_block=home_creator)
+
+[![Những thứ mình làm khi mua, cài mới lại máy
+Mac](https://imgproxy.k7.tinhte.vn/Jxr2vzFhMVczGdHfqoyI5t4B9Haip2sGtZbDoIBQQa4/h:420/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5949979_DSC03246.jpg)nicklanick01Những thứ mình làm khi mua, cài
+mới lại máy Mac](https://tinhte.vn/thread/nhung-thu-minh-lam-khi-mua-cai-moi-
+lai-may-mac.3504966/?ta_from_block=home_creator)
+
+[![Review Đèn pin dã ngoại Alonefire H002
+XPH50](https://imgproxy.k7.tinhte.vn/99IgXiGmtNcWKlPxCR2d02YLI0DgtQEJVDbk4CTwBwk/h:420/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5949832_blob.jpg)SoGetSuReview Đèn pin dã ngoại Alonefire H002
+XPH50](https://tinhte.vn/thread/review-den-pin-da-ngoai-
+alonefire-h002-xph50.3504915/?ta_from_block=home_creator)
+
+[![Ngắm nhìn "thế giới vô hình" với kính hiển vi kỹ thuật số
+1.000x](https://imgproxy.k7.tinhte.vn/rPm0XuAiWIWIaqT7_oT8rWVQfuGYXxXKY6KySsRFk9I/h:420/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5949829_kinh-hien-vi-ky-thuat-so-wifi.png)doctailieuNgắm nhìn
+"thế giới vô hình" với kính hiển vi kỹ thuật số
+1.000x](https://tinhte.vn/thread/ngam-nhin-the-gioi-vo-hinh-voi-kinh-hien-vi-
+ky-thuat-so-1-000x.3504912/?ta_from_block=home_creator)
+
+[![Review Ghế công thái học HBADA HDNY163: Chất lượng ra
+sao?](https://imgproxy.k7.tinhte.vn/z-iv1GEJv0_WBy3VWnw_uxmgPhZFW7gjWscJ1IOCywQ/h:420/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5948780_3346c269-d023-4147-b626-e4a7bd8380c9.jpg)ntanh01Review
+Ghế công thái học HBADA HDNY163: Chất lượng ra
+sao?](https://tinhte.vn/thread/review-ghe-cong-thai-hoc-hbada-hdny163-chat-
+luong-ra-sao.3504590/?ta_from_block=home_creator)
+
+  
+[Xem tất cả](/tinhte-creator)
+
+  
+
+### [Video Tinh tế](https://youtube.com/user/tinhtevideo)
+
+  1. #### Trên tay máy chiếu XGIMI Horizon
+
+5:29362 lượt xem
+
+  2. #### Mở vòi ra uống nước liền, không cần nấu: Vì sao làm được như vậy?
+
+9:81.030 lượt xem
+
+  3. #### So sánh So sánh Galaxy Tab S8 và iPad Pro 11 M1
+
+13:385.281 lượt xem
+
+  4. #### Trên tay Lenovo Legion 5i Pro: thiết kế gaming hơn, nhiều nâng cấp ý nghĩa
+
+10:244.018 lượt xem
+
+  5. #### Trên tay tai nghe True Wireless Bang & Olufsen Beoplay EX
+
+9:58945 lượt xem
+
+  6. #### Bố mẹ bạn cũng cần robot hút bụi đó
+
+8:592.445 lượt xem
+
+  7. #### Một ngày với hệ sinh thái Samsung: Liền mạch và đáng trải nghiệm
+
+14:453.121 lượt xem
+
+  8. #### Những tính năng nên và không nên dùng trên camera iPhone
+
+12:438.522 lượt xem
+
+  9. #### Đố các bạn: Việt Nam có bao nhiêu Apple Store?
+
+9:1510.613 lượt xem
 
 Xem thêm trên Youtube
 
-  1. ####  Vingroup khởi động Chương trình Đào tạo Kỹ sư AI năm 2022 
+  1. [](https://tinhte.vn/thread/cac-mau-xe-honda-tam-thoi-bien-mat-tren-website-tai-viet-nam.3499563/)[
 
-Ngày 15/4/2022, Vingroup đã công bố triển khai Chương trình Đào tạo Kỹ sư AI
-năm 2022. Trong quá trình đào tạo, học viên được nhận mức đãi ngộ cạnh tranh
-và có cơ hội tham gia những dự án công nghệ…
+#### Các mẫu xe Honda tạm thời “biến mất” trên website tại Việt Nam
 
-![MinhTriND](https://photo2.tinhte.vn/data/avatars/m/252/252123.jpg?1571427085)
+](https://tinhte.vn/thread/cac-mau-xe-honda-tam-thoi-bien-mat-tren-website-
+tai-viet-nam.3499563/)
 
-MinhTriND
+[Trên website của Honda Việt Nam, nếu anh em nào có để ý thì hiện tại đã không
+còn sự xuất hiện của một số mẫu xe nữa. Vẫn chưa rõ vì lý do nào cho việc này
+nhưng động thái của Honda làm dấy lên…
 
-  
+](https://tinhte.vn/thread/cac-mau-xe-honda-tam-thoi-bien-mat-tren-website-
+tai-viet-nam.3499563/)
 
-  2. ####  Việt Nam bắt đầu chiến dịch tiêm cho trẻ từ 5 đến dưới 12 tuổi, tiêm đầu tiên ở Quảng Ninh 
+[![MinhTriND](https://photo2.tinhte.vn/data/avatars/m/252/252123.jpg?1571427085)](/profile/minhtrind.252123/)MinhTriND
 
-Vậy là sau 1 khoảng thời gian chuẩn bị vừa hỏi ý kiến vừa kêu gọi hỗ trợ
-vaccine từ nước ngoài hôm nay Việt Nam đã bắt đầu thực hiện việc tiêm vaccine
-phòng chống covid-19 cho nhóm trẻ từ 5 đến dưới…
-
-![Hassler](https://photo2.tinhte.vn/data/avatars/m/0/17.jpg?1601178024)
-
-Hassler
+[![xe.tinhte.vn](/static/images/xe_tinhte_logo_small.png)Xe Tinh
+tế](https://xe.tinhte.vn/?utm_source=internal&utm_medium=home_latest_thread_subbrand_logo)
 
   
 
-  3. ####  Air Protein: Startup Mỹ tìm cách biến... CO2 trong khí trời thành thịt cá 
+  2. [](https://tinhte.vn/thread/the-sd-dac-biet-cho-macbook-them-bo-nho-512gb-gia-2-trieu.3505249/)[
 
-Tiêu đề không hề nói quá, vì startup hóa sinh có trụ sở tại California, Mỹ này
-đang nghiên cứu những dạng vi sinh vật có khả năng tiết ra enzyme để biến khí
-CO2 trong không khí hoặc khí thải công…
+#### Thẻ SD đặc biệt cho MacBook, thêm bộ nhớ 512GB giá 2 triệu
 
-![P.W](https://photo2.tinhte.vn/data/avatars/m/2452/2452461.jpg?1531482070)
+](https://tinhte.vn/thread/the-sd-dac-biet-cho-macbook-them-bo-nho-512gb-
+gia-2-trieu.3505249/)
 
-P.W
+[Chiếc thẻ SD được thiết kế đặc biệt này dùng để gắn vào khe thẻ SD trên
+MacBook và khi gắn vào thì nó không lòi ra như các thẻ SD khác và như vậy anh
+em có thể nó ở đó luôn…
 
-  
+](https://tinhte.vn/thread/the-sd-dac-biet-cho-macbook-them-bo-nho-512gb-
+gia-2-trieu.3505249/)
 
-  4. ####  Elon Musk gạ "mua đứt" Twitter với giá 43 tỷ USD 
-
-Tỷ phú giàu nhất hành tinh ở thời điểm hiện tại vừa đưa ra đề nghị mua nốt số
-cổ phần còn lại của mạng xã hội Twitter với mức giá 54.20 USD một cổ phiếu,
-tương đương 43 tỷ USD.
-
-![P.W](https://photo2.tinhte.vn/data/avatars/m/2452/2452461.jpg?1531482070)
-
-P.W
+[![cuhiep](https://photo2.tinhte.vn/data/avatars/m/0/3.jpg?1605149610)](/profile/cuhiep.3/)cuhiep
 
   
 
-  5.   6. Xe Tinhte 
+  3. [](https://tinhte.vn/thread/review-youtube-cua-chinh-minh-co-gi-hay-tren-do-youtube-de-xuat-cai-gi-cho-minh-xem.3505075/)[
 
-![xe.tinhte.vn](/static/images/xe_tinhte_logo_small.png)
+#### Review Youtube của chính mình: có gì hay trên đó ? Youtube đề xuất cái gì
+cho mình xem ?
 
-    * Trải nghiệm nhanh Subaru BRZ 2022: Thể thao nhưng vẫn có sự êm ái để đi hàng ngày 
-    * Vespa kết hợp Justin Bieber ra mắt phiên bản Sprint giới hạn “trắng tinh khiết” 
-    * Nissan và NASA hợp tác nghiên cứu công nghệ pin thể rắn, sạc đầy trong 15 phút 
-    * [Video] Khi xe tự hành bị cảnh sát tấp vào lề, không tài xế thì xử lý làm sao? 
+](https://tinhte.vn/thread/review-youtube-cua-chinh-minh-co-gi-hay-tren-do-
+youtube-de-xuat-cai-gi-cho-minh-xem.3505075/)
 
-Xem tất cả
+[Lời mở Nghe rất tào lao nhưng mình tìn là #ReviewYoutubeSelf là một chủ đề
+thú vị, Youtube của mình nó có rất nhiều ÂM NHẠC, GIẢI TRÍ, DU LỊCH VÀ NHỮNG
+NGƯỜI CHĂM CHỈ.
 
-Audio Tinhte
+](https://tinhte.vn/thread/review-youtube-cua-chinh-minh-co-gi-hay-tren-do-
+youtube-de-xuat-cai-gi-cho-minh-xem.3505075/)
 
-![xe.tinhte.vn](/static/images/audio_tinhte_logo_small.png)
+[![pro-k](https://photo2.tinhte.vn/data/avatars/m/10/10844.jpg?1394077624)](/profile/pro-k.10844/)pro-k
 
-    * Netflix thêm nút “hai ngón cái” để khuyến nghị nội dung chính xác hơn cho người xem 
-    * HiFiMan giới thiệu bộ loa nghe nhạc cùng amplifier X100 Desktop Audio System, giá $499 
-    * Tìm hiểu về thành phần cấu tạo hóa học của đĩa than (đĩa vinyl) 
-    * Beats Studio Buds có thêm 3 màu sắc mới 
+  
 
-Xem tất cả
+  4. [](https://tinhte.vn/thread/benchmark-nhanh-mac-studio-cau-hinh-m1-max.3504932/)[
+
+#### Benchmark nhanh Mac Studio cấu hình M1 Max
+
+](https://tinhte.vn/thread/benchmark-nhanh-mac-studio-cau-
+hinh-m1-max.3504932/)
+
+[Mình benchmark nhanh để xem điểm số về hiệu năng của Mac Studio cấu hình M1
+Max như thế nào, hy vọng sẽ có nhiều anh em quan tâm. Trong bài viết mình cũng
+tham chiếu một vài điểm của MacBook Pro 16…
+
+](https://tinhte.vn/thread/benchmark-nhanh-mac-studio-cau-
+hinh-m1-max.3504932/)
+
+[![Mikeknowsme](https://photo2.tinhte.vn/data/avatars/m/2263/2263677.jpg?1511252312)](/profile/mikeknowsme.2263677/)Mikeknowsme
+
+  
+
+  5.   6. [Xe Tinhte![xe.tinhte.vn](/static/images/xe_tinhte_logo_small.png)](https://tinhte.vn/thread/vinfast-hop-tac-voi-amazon-de-tich-hop-tro-ly-giong-noi-alexa-vao-xe-dien-tu-nam-2022.3504565/)
+    * [VinFast hợp tác với Amazon để tích hợp trợ lý giọng nói Alexa vào xe điện từ năm 2022](https://tinhte.vn/thread/vinfast-hop-tac-voi-amazon-de-tich-hop-tro-ly-giong-noi-alexa-vao-xe-dien-tu-nam-2022.3504565/ "VinFast hợp tác với Amazon để tích hợp trợ lý giọng nói Alexa vào xe điện từ năm 2022")
+    * [BMW nâng cấp 'nhẹ' X7: mắt híp, lưới tản nhiệt to, mâm 23"](https://tinhte.vn/thread/bmw-nang-cap-nhe-x7-mat-hip-luoi-tan-nhiet-to-mam-23.3502731/ "BMW nâng cấp 'nhẹ' X7: mắt híp, lưới tản nhiệt to, mâm 23"")
+    * [30 điều các tay đua F1 phải/có thể làm, nhưng anh em không thấy trên TV](https://tinhte.vn/thread/30-dieu-cac-tay-dua-f1-phai-co-the-lam-nhung-anh-em-khong-thay-tren-tv.3503585/ "30 điều các tay đua F1 phải/có thể làm, nhưng anh em không thấy trên TV")
+    * [Triển lãm Ô tô Việt Nam Motor Show chính thức trở lại sau 2 năm vắng bóng](https://tinhte.vn/thread/trien-lam-o-to-viet-nam-motor-show-chinh-thuc-tro-lai-sau-2-nam-vang-bong.3503645/ "Triển lãm Ô tô Việt Nam Motor Show chính thức trở lại sau 2 năm vắng bóng")
+
+[Xem tất cả](https://xe.tinhte.vn)
+
+[Audio
+Tinhte![xe.tinhte.vn](/static/images/audio_tinhte_logo_small.png)](https://tinhte.vn/thread/sang-
+chu-nhat-17-4-9h30-moi-anh-em-ghe-cafe-tinhte-offline-nghe-thu-cabasse-the-
+pearl-keshi.3504859/)
+
+    * [Sáng chủ nhật 17/4, 9h30 mời anh em ghé Cafe Tinhte offline nghe thử Cabasse The Pearl Keshi](https://tinhte.vn/thread/sang-chu-nhat-17-4-9h30-moi-anh-em-ghe-cafe-tinhte-offline-nghe-thu-cabasse-the-pearl-keshi.3504859/ "Sáng chủ nhật 17/4, 9h30 mời anh em ghé Cafe Tinhte offline nghe thử Cabasse The Pearl Keshi")
+    * [Bang & Olufsen Beoplay EX: true wireless chống ồn chủ động ANC, kháng nước IP57, có sạc không dây](https://tinhte.vn/thread/bang-olufsen-beoplay-ex-true-wireless-chong-on-chu-dong-anc-khang-nuoc-ip57-co-sac-khong-day.3504649/ "Bang & Olufsen Beoplay EX: true wireless chống ồn chủ động ANC, kháng nước IP57, có sạc không dây")
+    * [Sonos mua lại thương hiệu Mayht (Đức) để phát triển thế hệ loa sử dụng công nghệ Heartmotion](https://tinhte.vn/thread/sonos-mua-lai-thuong-hieu-mayht-duc-de-phat-trien-the-he-loa-su-dung-cong-nghe-heartmotion.3503514/ "Sonos mua lại thương hiệu Mayht \(Đức\) để phát triển thế hệ loa  sử dụng công nghệ Heartmotion")
+    * [Sáng ra giới thiệu với anh em nghe một album world music của Ai Cập, bật tung sức sống cùng: Egypt](https://tinhte.vn/thread/sang-ra-gioi-thieu-voi-anh-em-nghe-mot-album-world-music-cua-ai-cap-bat-tung-suc-song-cung-egypt.3503473/ "Sáng ra giới thiệu với anh em nghe một album world music của Ai Cập, bật tung sức sống cùng: Egypt")
+
+[Xem tất cả](https://audio.tinhte.vn)
 
   
 
@@ -534,132 +582,181 @@ Xem tất cả
 
   
 
-  8. ####  Fibit được FDA chấp thuận tính năng theo dõi và xác định tình trạng rung tâm nhĩ (AFib) 
+  8. [](https://tinhte.vn/thread/apple-dang-phat-trien-mot-he-dieu-hanh-tuy-chinh-moi-de-van-hanh-apple-car.3505144/)[
 
-Tính năng theo dõi nhịp tim liên tục của Fitbit đã xuất hiện từ năm 2018, giờ
-đây nó được được nâng cấp lên, hỗ trợ phát hiện dấu hiệu rung tâm nhĩ (AFib).
+#### Apple đang phát triển một hệ điều hành tuỳ chỉnh mới để vận hành Apple
+Car?
 
-![Lê Huyền
-Vân](https://photo2.tinhte.vn/data/avatars/m/2614/2614065.jpg?1620650361)
+](https://tinhte.vn/thread/apple-dang-phat-trien-mot-he-dieu-hanh-tuy-chinh-
+moi-de-van-hanh-apple-car.3505144/)
 
-Lê Huyền Vân
+[Báo cáo mới từ Digitimes cho biết Apple được cho là đang đặc biệt phát triển
+một hệ điều hành mới, được mô tả là “hệ điều hành tích hợp tập trung giống như
+Tesla” dành cho Apple Car (tạm gọi là…
 
-  
+](https://tinhte.vn/thread/apple-dang-phat-trien-mot-he-dieu-hanh-tuy-chinh-
+moi-de-van-hanh-apple-car.3505144/)
 
-  9. ####  Infographic: Top 10 cty lớn nhất ở Ấn Độ 
+[![vn_ninja](https://photo2.tinhte.vn/data/avatars/m/43/43700.jpg?1574743912)](/profile/vnninja.43700/)vn_ninja
 
-Sau khi giành độc lập vào năm 1950, Ấn Độ liên tục phát triển mạnh mẽ, hiện
-nay họ là quốc gia đông dân thứ 2 và có GDP đứng thứ 7 thế giới. Đất nước tỷ
-dân này cũng có lượng tỷ phú đô la nhiều thứ 3…
-
-![Nam Air](https://photo2.tinhte.vn/data/avatars/m/21/21346.jpg?1516076282)
-
-Nam Air
+[![xe.tinhte.vn](/static/images/xe_tinhte_logo_small.png)Xe Tinh
+tế](https://xe.tinhte.vn/?utm_source=internal&utm_medium=home_latest_thread_subbrand_logo)
 
   
 
-  10. ####  Có người ghép Steam Deck với RX 6900 XT, hoạt động như eGPU chơi game cho khỏe 
+  9. [](https://tinhte.vn/thread/xiaomi-gay-quy-phat-trien-cua-thong-minh-tich-hop-face-id.3505161/)[
 
-Giải pháp laptop kết nối với External GPU để tăng sức mạnh phần cứng lúc kết
-nối với màn hình lớn và chuột phím, hoặc khi làm việc ở nhà không còn là điều
-mới mẻ nữa.
+#### Xiaomi gây quỹ phát triển cửa thông minh tích hợp “Face ID”
 
-![P.W](https://photo2.tinhte.vn/data/avatars/m/2452/2452461.jpg?1531482070)
+](https://tinhte.vn/thread/xiaomi-gay-quy-phat-trien-cua-thong-minh-tich-hop-
+face-id.3505161/)
 
-P.W
+[Xiaomi đã khởi động chiến dịch gây quỹ cộng đồng tại Trung Quốc cho sản phẩm
+cửa thông minh của mình có tên là Xiaobai Blade Star smart door. Điểm đặc biệt
+là Xiaobai Blade Star sử dụng công nghệ…
 
-  
+](https://tinhte.vn/thread/xiaomi-gay-quy-phat-trien-cua-thong-minh-tich-hop-
+face-id.3505161/)
 
-###  Đổi điểm Tinh tế Rewards nhận deal ngon trên Shopee, mời anh em!
-
-Nhân đợt sale giữa tháng, Shopee sẽ có một số deal ngon dành riêng cho anh em
-thành viên Tinh tế. Cụ thể: 500 voucher giảm 50K Shopee cho người dùng mới của
-Shopee - Mỗi nick được đổi 3 lần để sử…
-
-![Lê Huyền
-Vân](https://photo2.tinhte.vn/data/avatars/m/2614/2614065.jpg?1620650361) Lê
-Huyền Vân
-
-![Java Media](/static/images/java.png)
+[![vn_ninja](https://photo2.tinhte.vn/data/avatars/m/43/43700.jpg?1574743912)](/profile/vnninja.43700/)vn_ninja
 
   
 
-  11. ####  Phải thay luôn màn hình MacBook vì dán miếng che webcam, anh em lưu ý! 
+  10. [](https://tinhte.vn/thread/galaxy-watch4-tai-viet-nam-da-su-dung-duoc-tinh-nang-do-huyet-ap-va-ecg-moi-anh-em-cap-nhat.3505174/)[
 
-Bài viết này mình rút ra từ sự cố hư hỏng MacBook của bạn mình, từ việc sử
-dụng miếng dán webcam mua trên mạng mà dẫn đến hậu quả đau ví tiền, phải thay
-luôn màn hình mới.
+#### Galaxy Watch4 tại Việt Nam đã sử dụng được tính năng đo huyết áp và ECG,
+mời anh em cập nhật
 
-![Lê Huyền
-Vân](https://photo2.tinhte.vn/data/avatars/m/2614/2614065.jpg?1620650361)
+](https://tinhte.vn/thread/galaxy-watch4-tai-viet-nam-da-su-dung-duoc-tinh-
+nang-do-huyet-ap-va-ecg-moi-anh-em-cap-nhat.3505174/)
 
-Lê Huyền Vân
+[Samsung Galaxy Watch4 khi ra mắt tại có nhiều nâng cấp và trang bị thêm nhiều
+tính năng theo dõi sức khỏe như chỉ số BIA (đo thành phần cơ thể), đo huyết áp
+và điện tâm đồ ECG.
+
+](https://tinhte.vn/thread/galaxy-watch4-tai-viet-nam-da-su-dung-duoc-tinh-
+nang-do-huyet-ap-va-ecg-moi-anh-em-cap-nhat.3505174/)
+
+[![Pnghuy](https://photo2.tinhte.vn/data/avatars/m/1692/1692874.jpg?1642948426)](/profile/pnghuy.1692874/)Pnghuy
+
+  
+  
+
+  11. [](https://tinhte.vn/thread/hinh-anh-bmw-430i-gran-coupe-gia-3-219-ti.3504948/)[
+
+#### Hình ảnh BMW 430i Gran Coupe giá 3,219 tỉ
+
+](https://tinhte.vn/thread/hinh-anh-bmw-430i-gran-coupe-gia-3-219-ti.3504948/)
+
+[Thấy cửa hàng BMW Long Biên khoe có 430i Gran Coupe trưng bày nên qua chụp
+vài tấm hình cho anh em ngắm. Trước đó, những xe 4-series mới đã về Việt Nam,
+chiếc Gran Coupe này tên mã là G26…
+
+](https://tinhte.vn/thread/hinh-anh-bmw-430i-gran-coupe-gia-3-219-ti.3504948/)
+
+[![Didu](https://photo2.tinhte.vn/data/avatars/m/60/60686.jpg?1541133925)](/profile/didu.60686/)Didu
+
+[![xe.tinhte.vn](/static/images/xe_tinhte_logo_small.png)Xe Tinh
+tế](https://xe.tinhte.vn/?utm_source=internal&utm_medium=home_latest_thread_subbrand_logo)
 
   
 
-  12. ####  VinFast công bố giá thuê pin VF 8 và VF 9 tại thị trường Mỹ 
+  12. [](https://tinhte.vn/thread/tren-tay-nhanh-den-led-dan-tv-sync-duoc-mau-gia-700k.3505151/)[
 
-Trong khuôn khổ Triển lãm Ô tô Quốc tế New York 2022 (NYIAS 2022), VinFast
-chính thức công bố mức giá thuê pin cho 2 mẫu xe VF 8 và VF 9 tại thị trường
-Mỹ.
+#### Trên tay nhanh đèn LED dán TV sync được màu giá 700k
 
-![thanhtung6868](https://photo2.tinhte.vn/data/avatars/m/322/322211.jpg?1558444356)
+](https://tinhte.vn/thread/tren-tay-nhanh-den-led-dan-tv-sync-duoc-mau-
+gia-700k.3505151/)
 
-thanhtung6868
+[Mình đã giới thiệu với anh em sợi dây LED giá 99 ngàn để dán sau lưng tivi,
+tuy nhiên nó không sync được màu nên chỉ tăng trải nghiệm 1 chút thôi, hôm nay
+giới thiệu với anh em dây LED giá 700 nghìn…
 
-![xe.tinhte.vn](/static/images/xe_tinhte_logo_small.png) Xe  Tinh tế
+](https://tinhte.vn/thread/tren-tay-nhanh-den-led-dan-tv-sync-duoc-mau-
+gia-700k.3505151/)
 
-  
-
-  13. ####  Tổng hợp deal khuyến mãi 14/04 
-
-Mời anh em chia sẻ thêm những ưu đãi giảm giá từ các trang thương mại điện tử
-lớn tại Việt Nam. Những deal nổi bật được cập nhật hàng ngày có giá trị theo
-giờ, theo ngày hoặc đến khi hết sản phẩm.
-
-![Minh Dự.](https://photo2.tinhte.vn/data/avatars/m/38/38271.jpg?1562662865)
-
-Minh Dự.
+[![Nam
+Air](https://photo2.tinhte.vn/data/avatars/m/21/21346.jpg?1516076282)](/profile/nam-
+air.21346/)Nam Air
 
   
 
-  
+  13. [](https://tinhte.vn/thread/mbr-va-gpt-la-gi-nen-chon-chuan-nao-cho-o-dia-ngay-nay.3502165/)[
 
-  14. ####  Triển lãm Ô tô Việt Nam Motor Show chính thức trở lại sau 2 năm vắng bóng 
+#### MBR và GPT là gì? Nên chọn chuẩn nào cho ổ đĩa ngày nay?
 
-Ban tổ chức Triển lãm Ô tô Việt Nam 2022 - Vietnam Motor Show 2022 (VMS 2022)
-chính thức công bố: VMS 2022 sẽ diễn ra vào tháng 10 tới đây tại TP.HCM. VMS
-2022 dự kiến sẽ diễn ra từ ngày 26 đến ngày…
+](https://tinhte.vn/thread/mbr-va-gpt-la-gi-nen-chon-chuan-nao-cho-o-dia-ngay-
+nay.3502165/)
 
-![thanhtung6868](https://photo2.tinhte.vn/data/avatars/m/322/322211.jpg?1558444356)
+[Câu trả lời là nên chọn GPT, vì đây là chuẩn mới, có nhiều lợi thế hơn so với
+MBR cũ kỹ. Tuy nhiên mình sẽ chia sẻ sâu hơn một chút để anh em có được cái
+nhìn khái quát hơn về MBR hay GPT là gì và…
 
-thanhtung6868
+](https://tinhte.vn/thread/mbr-va-gpt-la-gi-nen-chon-chuan-nao-cho-o-dia-ngay-
+nay.3502165/)
 
-![xe.tinhte.vn](/static/images/xe_tinhte_logo_small.png) Xe  Tinh tế
-
-  
-
-  15. ####  Infographic: Những gã khổng lồ Mỹ gục ngã ở thị trường TQ 
-
-Trong 2 thập kỉ đầu của thế kỷ 21, tầng lớp trung lưu ở Trung Quốc đã tăng từ
-3.1% lên gần 51%, ước tính hiện nay đạt khoảng 700 triệu người. Đây là lớp
-người chi tiêu mạnh cho các dịch vụ và mua sắm…
-
-![Nam Air](https://photo2.tinhte.vn/data/avatars/m/21/21346.jpg?1516076282)
-
-Nam Air
+[![mig0](https://photo2.tinhte.vn/data/avatars/m/2545/2545886.jpg?1644073282)](/profile/mig0.2545886/)mig0
 
   
 
-  16. ####  TikTok thử nghiệm nút dislike đối với phần bình luận trên các video 
+  
 
-Nút dislike ở phần bình luận trong các video trên TikTok là một tính năng mới
-mà nền tảng này đang thử nghiệm, qua đó cho phép người dùng thể hiện sự không
-đồng tình với các bình luận có trong một…
+  14. [](https://tinhte.vn/thread/khong-can-ngu-tam-tieng-moi-dem-theo-mot-nghien-cuu-moi.3503221/)[
 
-![_vphlinh_](https://photo2.tinhte.vn/data/avatars/m/2685/2685943.jpg?1582771028)
+#### Không cần ngủ tám tiếng mỗi đêm, theo một nghiên cứu mới
 
-_vphlinh_
+](https://tinhte.vn/thread/khong-can-ngu-tam-tieng-moi-dem-theo-mot-nghien-
+cuu-moi.3503221/)
+
+[Trong một nghiên cứu mới, các nhà nghiên cứu của Đại học California chia sẻ
+dữ liệu hơn 10 năm về cách các kiểu ngủ khác nhau ảnh hưởng đến những cá nhân
+khác nhau.
+
+](https://tinhte.vn/thread/khong-can-ngu-tam-tieng-moi-dem-theo-mot-nghien-
+cuu-moi.3503221/)
+
+[![Li
+Guoqing](https://photo2.tinhte.vn/data/avatars/m/2844/2844048.jpg?1648813628)](/profile/li-
+guoqing.2844048/)Li Guoqing
+
+  
+
+  15. [](https://tinhte.vn/thread/arm-da-chuyen-co-phan-tai-arm-trung-quoc-sang-mot-spv-nham-day-nhanh-tien-trinh-ipo.3504979/)[
+
+#### ARM đã chuyển cổ phần tại ARM Trung Quốc sang một SPV nhằm đẩy nhanh tiến
+trình IPO
+
+](https://tinhte.vn/thread/arm-da-chuyen-co-phan-tai-arm-trung-quoc-sang-mot-
+spv-nham-day-nhanh-tien-trinh-ipo.3504979/)
+
+[ARM đã chuyển cổ phần của mình trong liên doanh ARM Trung Quốc cho một tổ
+chức mục đích đặc thù (SPV) được đồng sở hữu với SoftBank Group. Đây là động
+thái nhằm đẩy nhanh tiến trình IPO của ARM vào…
+
+](https://tinhte.vn/thread/arm-da-chuyen-co-phan-tai-arm-trung-quoc-sang-mot-
+spv-nham-day-nhanh-tien-trinh-ipo.3504979/)
+
+[![bk9sw](https://photo2.tinhte.vn/data/avatars/m/52/52034.jpg?1542911383)](/profile/bk9sw.52034/)bk9sw
+
+  
+
+  16. [](https://tinhte.vn/thread/mot-vai-thong-tin-ve-wi-fi-7-du-kien-duoc-gioi-thieu-vao-2024.3504964/)[
+
+#### Một vài thông tin về Wi-Fi 7 dự kiến được giới thiệu vào 2024
+
+](https://tinhte.vn/thread/mot-vai-thong-tin-ve-wi-fi-7-du-kien-duoc-gioi-
+thieu-vao-2024.3504964/)
+
+[Wi-Fi 6 hiện là tiêu chuẩn được sử dụng phổ biến trong nhiều bộ định tuyến hỗ
+trợ tốc độ truyền cao. Nó có tốc độ 9,6Gbps, cao hơn nhiều so với Wi-Fi 5 là
+3,5Gbps.
+
+](https://tinhte.vn/thread/mot-vai-thong-tin-ve-wi-fi-7-du-kien-duoc-gioi-
+thieu-vao-2024.3504964/)
+
+[![Lê Huyền
+Vân](https://photo2.tinhte.vn/data/avatars/m/2614/2614065.jpg?1620650361)](/profile/le-
+huyen-van.2614065/)Lê Huyền Vân
 
   
 
@@ -667,49 +764,58 @@ _vphlinh_
 
   
 
-![Tinhte creator](https://photo2.tinhte.vn/data/attachment-
-files/2021/05/5463805_top-banner-creator.png)
+[![Tinhte creator](https://photo2.tinhte.vn/data/attachment-
+files/2021/05/5463805_top-banner-creator.png)](/tinhte-creator/threads)
 
   
 
-###  Cộng đồng nổi bật
+### Cộng đồng nổi bật
 
-![Cộng đồng Tinhte - Mua sắm thông
+[![Cộng đồng Tinhte - Mua sắm thông
 minh](https://imgproxy.k7.tinhte.vn/5tTGV5_shhJXAa4RglsbhfcZ6X7ldfUbltjgn3nhvRU/h:144/plain/https://photo2.tinhte.vn/data/attachment-
 files/2021/09/5657367_og.jpg)
 
 Mua sắm thông minh
 
-![Cộng đồng Tinhte - Phím
+](https://tinhte.vn/muasamthongminh/?ta_from_block=home_hot_community)
+
+[![Cộng đồng Tinhte - Phím
 cơ](https://imgproxy.k7.tinhte.vn/0pEt5ovzpkXEaPDnM_r42d-qLfCnWEe8Xw74DGHJTjE/h:144/plain/https://photo2.tinhte.vn/data/attachment-
 files/2021/08/5577318_og.jpg)
 
 Phím cơ
 
-![Cộng đồng Tinhte -
-realme](https://imgproxy.k7.tinhte.vn/m19bfsK9xlesyK2oCxN-
-ZeK8SPLQhG61hSKkcTw-T3M/h:144/plain/https://photo2.tinhte.vn/data/attachment-
-files/2021/04/5427685_og.jpg)
+](https://tinhte.vn/phimco/?ta_from_block=home_hot_community)
 
-realme
+[![Cộng đồng Tinhte - Hiệp
+Sĩ](https://imgproxy.k7.tinhte.vn/TqCDfZtpYBX92FnlLPWVtrPe4Tmo71l5sVLWy8Mc83c/h:144/plain/https://s3.cloud.cmctelecom.vn/tinhte1/2018/10/4454549_og.jpg)
 
-![Cộng đồng Tinhte -
-Vivo](https://imgproxy.k7.tinhte.vn/Rs3Rxy3GMahltG4DpYy9ksKom6P6tphm3l7s1qKsm0w/h:144/plain/https://s3.cloud.cmctelecom.vn/tinhte1/2018/10/4454567_og.jpg)
+Hiệp Sĩ
 
-Vivo
+](https://tinhte.vn/hiepsi/?ta_from_block=home_hot_community)
 
-![Cộng đồng Tinhte -
-Viettel](https://imgproxy.k7.tinhte.vn/yuCIqZrmkqAPAVMJCYZL56VY325Jrlh0a2l8e39tIRo/h:144/plain/https://photo2.tinhte.vn/data/attachment-
-files/2021/02/5340116_og.jpg)
+[![Cộng đồng Tinhte -
+BlackBerry](https://imgproxy.k7.tinhte.vn/UjGizMJUc0WlgfCoEXCQWl5q6BeE1y0y3FJAtv58GKg/h:144/plain/https://s3.cloud.cmctelecom.vn/tinhte1/2018/10/4454556_og.jpg)
 
-Viettel
+BlackBerry
 
-![Cộng đồng Tinhte -
-Android](https://imgproxy.k7.tinhte.vn/5VAf1beLDipMt7At_PB8h2E9MFG4GF5ysMjpw9q46cs/h:144/plain/https://s3.cloud.cmctelecom.vn/tinhte1/2018/10/4454624_og.png)
+](https://tinhte.vn/blackberry/?ta_from_block=home_hot_community)
 
-Android
+[![Cộng đồng Tinhte -
+MacBook](https://imgproxy.k7.tinhte.vn/Gnp_g5r6S5AwIzrautRQBKa52smNRs4NhHlCDecpOLs/h:144/plain/https://s3.cloud.cmctelecom.vn/tinhte2/2019/04/4608598_og.jpg)
 
-Xem tất cả (  79  )
+MacBook
+
+](https://tinhte.vn/macbook/?ta_from_block=home_hot_community)
+
+[![Cộng đồng Tinhte - iPad](https://imgproxy.k7.tinhte.vn/4Ku-
+tVcc-l0LGdaS0XR4VM5-Qvd8bzGFlzLJsrGtxYU/h:144/plain/https://s3.cloud.cmctelecom.vn/tinhte2/2019/04/4608595_og.jpg)
+
+iPad
+
+](https://tinhte.vn/ipad/?ta_from_block=home_hot_community)
+
+[Xem tất cả (79)](/community)
 
   
 
@@ -720,21 +826,22 @@ Xem tất cả (  79  )
 
 ![icon](data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAACkAAAAnCAYAAACSamGGAAAACXBIWXMAAAsTAAALEwEAmpwYAAAAAXNSR0IArs4c6QAAAARnQU1BAACxjwv8YQUAAAUJSURBVHgB7VhBTxtHFH4z67XXGIxd0QBVItZt1dJIFcupvWEupVUrJT0lOYUce2r7C5r+gohTml5SThG9BA5t1ZMhvZBTllPSQ5OljQSkIWwpBhvYnc4be5ax8a7XgaSKxCctO5pZZr793vvezBrgFQCJGjxTuj5JNXIZGBRJMgEk0zVPkpoNPlv2PWY771+ah/+TpPnbjW+Yz64SQoD2dgOSbAVGwOaTOPzZBSQO+xXbGb3iwosmKRSk5Ca2tVxPKMEwHDfxliSH7nxXqoVY5yS74Zjg8NVs5vlLvg/znRBvTXLh+gYfytHuNNAuA14YCLhcdpv53oJPqH020e38/M6n9uHHmmCWvrcY9e9hG1VENV8WdEJhQE+7vTQ5S8D7drbwiYP9tPlBD/ZN2SZ6Z7l4VOwxH/7aLefK/v4kA610/tFPFvYfIkmAiAGS0Pgf0tEiqdUdOD39EF7/dQWOgif7O3gzGei3W5PUyJhoUAqdYnDmT0g7ZcgtPhWEJXR3F/rnHkPW3og1D1dSqIpEP3v0S/FwPBmzhJ4dlp20syXISOzlkkF7YGYZjNWKILltZmBfGQuDx8sLuoH4xGpgYpau5Rh3NbZFuCOQ52ol1ypQ7TegOmBAdumgmmyO5ME3av+PiiJBCdnfDroS5Ca5DEu2okyDqvVF5J2XpuKZ6kAacnfXoRX5KBhUA63uB0aZ3cCEZ0ERh9qbJtpQ+cV1cYk5FVKoOK14bYkmiapixW5YbejOjds8J8/H2Wkw/zIPNoVRupbLYvG4wHxduTAkSLfCqYTBrzQ27bnCR6ONFmZg4i2OaXAh98M+ePrxYAPBvycGRVgr/eE7Fb4gVoAwZGhtA2HMX8Z7wKZmGnZQI2PitYUnQbv8blYQl0TMqd+DsY0P+iC1tgNdXHnfoLA1nA2d0yBanSTf46HBOO1NgwsPzoiXE2UE1cJwS6gL9yg1EcsOKi4RlZcaz3fVNE0k6/URi3iIaXDhVL2c4B1zUkV2aQMS/EWaS9K/PPwqooyDzpZA09TukqKmjaG+EBHq8nCvIKK7ey3HUVVVWQmsp5kH/4iS1K6QZ2hAyZ4tfO42kAxMo4eTRIWcL4cFEVw0r9TAKGDhzy/W2o8vvwk7PPxhSNdJStMEJFXTQKK9s3ERdQtE8mvnzohQ93Klm9NABe5AUST1eo2UpglINpgmprN77x6UEJc7F4nipXFTSJJ7OZ2XpDeE8uhsP6VFuhpNEzi7bhqF5AGIFu/0k1TycltRRiX/bKyf53FWXHHQyjS1tgB2iAoP/BskFtHVc6fFqWbTyjeYQT1MbEeEtSVJIkkyR5oGIdg441+7XOl5MVypxpoQ1Vm5OHRIpXWuHtZPDHOcI5mKbk3uNGxJ7Q/CTTx2hVFS8rerpvj46vBULvGseEpczwNpGvw4U/uDuDrjXzjEZ+M83NPe1vaxftzHgWoavp80kAyV6637P5b4KxXhJQGLeCHZAzVSXkF+KSJCiyIvpnP8J5Zii4EpnjMuN9cIr2UWf0sTjgFZKvMXTXNAMJKkX039oBm716CJ4B9nL36ldpn3buYShmH5jFiEkjG+sZqEk4cOgLnYI03jw3TzeKQ71JDj7zsPhy+MQgx0QhwJYphrp3HGD7kTox2SvDXJ0xh/uHL44Wrcee+SA0fA2/dvFZF4ghCLF+6RnJayMMz8aOYSYFOzhYmr8DzAiVEZOMEJTvBq4T/KxRIo2kC1tAAAAABJRU5ErkJggg==)
 
-#  macos
+[#ios](https://tinhte.vn/tags?t=ios&ta_from_block=home_hot_tag)
 
-#  tinhtefact
+[#trên tay](https://tinhte.vn/tags?t=trên tay&ta_from_block=home_hot_tag)
 
-#  illustrator
+[#tin đồn](https://tinhte.vn/tags?t=tin đồn&ta_from_block=home_hot_tag)
 
-#  vinfast
+[#đo huyết áp](https://tinhte.vn/tags?t=đo huyết
+áp&ta_from_block=home_hot_tag)
 
-#  mạng xã hội
+[#tin tức](https://tinhte.vn/tags?t=tin tức&ta_from_block=home_hot_tag)
 
-#  dịch vụ trực tuyến
+[#iphone](https://tinhte.vn/tags?t=iphone&ta_from_block=home_hot_tag)
 
-#  apple
+[#apple](https://tinhte.vn/tags?t=apple&ta_from_block=home_hot_tag)
 
-#  iphone
+[#smartwatch](https://tinhte.vn/tags?t=smartwatch&ta_from_block=home_hot_tag)
 
   
 
@@ -746,141 +853,150 @@ Xem tất cả (  79  )
 
 Thủ thuật Tinh tế
 
-![Anh em có thường sử dụng proxy server không, và là loại miễn phí hay trả
+[![Một vài gợi ý chụp ảnh khi đi du
+lịch](https://imgproxy.k7.tinhte.vn/S-yHe4fx4pd3l65ZfTvfU11E7MC-
+AyNlJGI19_yc5Yk/h:216/plain/https://9932704de5fc5c8.cmccloud.com.vn/videos/2022/04/5950647/gif/5950647_5e1f3b4fe852893481abce47dcbe288d.gif)Một
+vài gợi ý chụp ảnh khi đi du lịch](https://tinhte.vn/thread/mot-vai-goi-y-
+chup-anh-khi-di-du-lich.3505175/?ta_from_block=home_trick)
+
+[![Bạn khó chịu khi màn hình iPhone tự điều chỉnh độ sáng xuống thấp? Đây là
+cách giải
+quyết](https://imgproxy.k7.tinhte.vn/UQOjVapfBAFZq9lNhWnQa5gqgkKjIMcvkFkrWRqaK_E/h:216/plain/https://photo2.tinhte.vn/data/attachment-
+files/2022/04/5948916_cover_manhinh_iphone_tinhte.jpg)Bạn khó chịu khi màn
+hình iPhone tự điều chỉnh độ sáng xuống thấp? Đây là cách giải
+quyết](https://tinhte.vn/thread/ban-kho-chiu-khi-man-hinh-iphone-tu-dieu-
+chinh-do-sang-xuong-thap-day-la-cach-giai-
+quyet.3504651/?ta_from_block=home_trick)
+
+[![Anh em có thường sử dụng proxy server không, và là loại miễn phí hay trả
 tiền?](https://imgproxy.k7.tinhte.vn/t1te9jQV_B2pp2JCmcev4eNSEeZAhf4q3S4mydT_ado/h:216/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5946655_cover_proxy_server_free_tinhte.jpg)
+files/2022/04/5946655_cover_proxy_server_free_tinhte.jpg)Anh em có thường sử
+dụng proxy server không, và là loại miễn phí hay trả
+tiền?](https://tinhte.vn/thread/anh-em-co-thuong-su-dung-proxy-server-khong-
+va-la-loai-mien-phi-hay-tra-tien.3503725/?ta_from_block=home_trick)
 
-Anh em có thường sử dụng proxy server không, và là loại miễn phí hay trả tiền?
-
-![Cách sử dụng Markdown của Google để nâng cao hiệu quả công
+[![Cách sử dụng Markdown của Google để nâng cao hiệu quả công
 việc](https://imgproxy.k7.tinhte.vn/NJXoVeijbLeM9PNiqOTVa4eQ_jwWZZfn2Lz6wFUUgI8/h:216/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5945438_Markdown_1.jpg)
+files/2022/04/5945438_Markdown_1.jpg)Cách sử dụng Markdown của Google để nâng
+cao hiệu quả công việc](https://tinhte.vn/thread/cach-su-dung-markdown-cua-
+google-de-nang-cao-hieu-qua-cong-viec.3503253/?ta_from_block=home_trick)
 
-Cách sử dụng Markdown của Google để nâng cao hiệu quả công việc
-
-![2 mẹo xử lý khi dùng iMessages: tắt thông báo banner, gửi bằng số điện thoại
-thay vì tên email](https://imgproxy.k7.tinhte.vn/V-eiDyQFP7UoyvjdvyImvcQ-
+[![2 mẹo xử lý khi dùng iMessages: tắt thông báo banner, gửi bằng số điện
+thoại thay vì tên
+email](https://imgproxy.k7.tinhte.vn/V-eiDyQFP7UoyvjdvyImvcQ-
 EcT5bX0R8wp3NJGZgHE/h:216/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5945264_cover_imessages_tinhte.jpg)
+files/2022/04/5945264_cover_imessages_tinhte.jpg)2 mẹo xử lý khi dùng
+iMessages: tắt thông báo banner, gửi bằng số điện thoại thay vì tên
+email](https://tinhte.vn/thread/2-meo-xu-ly-khi-dung-imessages-tat-thong-bao-
+banner-gui-bang-so-dien-thoai-thay-vi-ten-
+email.3503222/?ta_from_block=home_trick)
 
-2 mẹo xử lý khi dùng iMessages: tắt thông báo banner, gửi bằng số điện thoại
-thay vì tên email
-
-![Hướng dẫn kích hoạt thumbnail preview cho tab trên trình duyệt Chrome và
+[![Hướng dẫn kích hoạt thumbnail preview cho tab trên trình duyệt Chrome và
 Edge](https://imgproxy.k7.tinhte.vn/PLXxnY6-qxyHLBoMqa3zBN2aE-
 kg2IqYX_wOz_bynbY/h:216/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5945031_cover_chrome_edge_tab_thumbnails_tinhte.jpg)
+files/2022/04/5945031_cover_chrome_edge_tab_thumbnails_tinhte.jpg)Hướng dẫn
+kích hoạt thumbnail preview cho tab trên trình duyệt Chrome và
+Edge](https://tinhte.vn/thread/huong-dan-kich-hoat-thumbnail-preview-cho-tab-
+tren-trinh-duyet-chrome-va-edge.3503162/?ta_from_block=home_trick)
 
-Hướng dẫn kích hoạt thumbnail preview cho tab trên trình duyệt Chrome và Edge
-
-![Những tính năng nên và không nên dùng trên camera
+[![Những tính năng nên và không nên dùng trên camera
 iPhone](https://imgproxy.k7.tinhte.vn/t0zTxGfNGnapphdv4sQ2Q1Fa5CQTBJ-
 iRTnevfrqbUM/h:216/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5945008_cover_Nhung_tinh_nang_nen_dung_tren_camera_iphone_18.jpg)
+files/2022/04/5945008_cover_Nhung_tinh_nang_nen_dung_tren_camera_iphone_18.jpg)Những
+tính năng nên và không nên dùng trên camera
+iPhone](https://tinhte.vn/thread/nhung-tinh-nang-nen-va-khong-nen-dung-tren-
+camera-iphone.3495789/?ta_from_block=home_trick)
 
-Những tính năng nên và không nên dùng trên camera iPhone
-
-![Những điều cần biết về Khoá kích hoạt \(Activation Lock\) trên iPhone, iPad
+[![Những điều cần biết về Khoá kích hoạt \(Activation Lock\) trên iPhone, iPad
 và cách xử lý](https://imgproxy.k7.tinhte.vn/EB-p-
 Pn7KDio5Wa4BmrjU7bL28ydAbAY1Z0jZba_Q6A/h:216/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5942571_cover_activation_lock_iphone_tinhte.jpg)
+files/2022/04/5942571_cover_activation_lock_iphone_tinhte.jpg)Những điều cần
+biết về Khoá kích hoạt (Activation Lock) trên iPhone, iPad và cách xử
+lý](https://tinhte.vn/thread/nhung-dieu-can-biet-ve-khoa-kich-hoat-activation-
+lock-tren-iphone-ipad-va-cach-xu-ly.3502246/?ta_from_block=home_trick)
 
-Những điều cần biết về Khoá kích hoạt (Activation Lock) trên iPhone, iPad và
-cách xử lý
-
-![Một số thủ thuật YouTube hay ho mà anh em có thể tận
+[![Một số thủ thuật YouTube hay ho mà anh em có thể tận
 dụng](https://imgproxy.k7.tinhte.vn/rxFvy874TO95cik-U5rYP9ZCxxkJKIz1V1gicOtyvLU/h:216/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5940624_cover_thu_thuat_youtube_tinhte.jpg)
+files/2022/04/5940624_cover_thu_thuat_youtube_tinhte.jpg)Một số thủ thuật
+YouTube hay ho mà anh em có thể tận dụng](https://tinhte.vn/thread/mot-so-thu-
+thuat-youtube-hay-ho-ma-anh-em-co-the-tan-
+dung.3501600/?ta_from_block=home_trick)
 
-Một số thủ thuật YouTube hay ho mà anh em có thể tận dụng
-
-![Những bước tiến hoá của Face ID sau 5 năm: lên iPad, nhận diện nhanh hơn, mở
-khoá với khẩu
+[![Những bước tiến hoá của Face ID sau 5 năm: lên iPad, nhận diện nhanh hơn,
+mở khoá với khẩu
 trang…](https://imgproxy.k7.tinhte.vn/LaksNI4gs1uWisLom19tyC-S87-wKVkIZmbut2BFVqo/h:216/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5940524_cover_Face_ID_iPhone_13_Pro_tinhte.jpg)
+files/2022/04/5940524_cover_Face_ID_iPhone_13_Pro_tinhte.jpg)Những bước tiến
+hoá của Face ID sau 5 năm: lên iPad, nhận diện nhanh hơn, mở khoá với khẩu
+trang…](https://tinhte.vn/thread/nhung-buoc-tien-hoa-cua-face-id-sau-5-nam-
+len-ipad-nhan-dien-nhanh-hon-mo-khoa-voi-khau-
+trang.3501572/?ta_from_block=home_trick)
 
-Những bước tiến hoá của Face ID sau 5 năm: lên iPad, nhận diện nhanh hơn, mở
-khoá với khẩu trang…
-
-![“Ép” Tinhte.vn bật dark mode mà không cần 100 điểm đổi
-Rewards](https://imgproxy.k7.tinhte.vn/P2do9yAIcTMgzGr5qtaJc4WEfMdQ3S7nmaw5ryit_iU/h:216/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5938952_cover_chrome_edge_dark_mode_tinhte.jpg)
-
-“Ép” Tinhte.vn bật dark mode mà không cần 100 điểm đổi Rewards
-
-![Những tính năng chỉnh sửa ảnh nên dùng trên S22
-Series](https://imgproxy.k7.tinhte.vn/itVDZUjflxjV4km8ULYpYkvcnpZGVln3ObmFRaNLLAE/h:216/plain/https://photo2.tinhte.vn/data/attachment-
-files/2022/04/5937663_cover_chinh_sua_hinh_anh_tren_s22_ultra-10.jpg)
-
-Những tính năng chỉnh sửa ảnh nên dùng trên S22 Series
-
-Xem tất cả
+[Xem tất cả](https://tinhte.vn/thu-thuat/)
 
   
 
   
   
 
-__
+ __
 
-  1. Tin mới 
-  2. Sản phẩm công nghệ mới 
-  3. Khuyến mãi 
-  4. Sự kiện 
-  5. Video 
+  1. [Tin mới](https://tinhte.vn/)
+  2. [Sản phẩm công nghệ mới](https://tinhte.vn/resources/)
+  3. [Khuyến mãi](https://tinhte.vn/km/)
+  4. [Sự kiện](https://tinhte.vn/events/)
+  5. [Video](https://www.youtube.com/user/tinhtevideo/)
 
-  1. ###  Tinh tế 
+  1. ### Tinh tế
 
-    1. Nội quy diễn đàn 
-    2. Thỏa thuận sử dụng dịch vụ 
-    3. Góp ý 
-    4. Hỗ trợ, hướng dẫn 
-    5. Liên hệ quảng cáo 
-    6. Tinh tế RSS 
+    1. [Nội quy diễn đàn](https://tinhte.vn/threads/noi-quy-dien-dan.20/)
+    2. [Thỏa thuận sử dụng dịch vụ](https://tinhte.vn/threads/thoa-thuan-cung-cap-su-dung-dich-vu.2864413/)
+    3. [Góp ý](https://tinhte.vn/forums/gop-y-xay-dung-dien-dan.81/)
+    4. [Hỗ trợ, hướng dẫn](https://tinhte.vn/hotro/)
+    5. [Liên hệ quảng cáo](https://tinhte.vn/quangcao/)
+    6. [Tinh tế RSS](https://feeds.feedburner.com/tinhte/)
 
-  2. ###  Cộng đồng 
+  2. ### Cộng đồng
 
-    1. Điện thoại 
-    2. Máy tính 
-    3. Camera 
-    4. Xe 
-    5. Khoa học công nghệ 
+    1. [Điện thoại](https://tinhte.vn/dienthoai/)
+    2. [Máy tính](https://tinhte.vn/maytinh/)
+    3. [Camera](https://tinhte.vn/camera/)
+    4. [Xe](https://tinhte.vn/xe/)
+    5. [Khoa học công nghệ](https://tinhte.vn/khcn/)
 
-  3. ###  Nhật Tảo 
+  3. ### Nhật Tảo
 
-    1. Mua bán điện thoại 
-    2. Mua bán máy tính 
-    3. Mua bán máy tính bảng 
-    4. Mua bán camera 
-    5. Mua bán đồng hồ thông minh 
-    6. Mua bán xe 
-    7. Mua bán điện máy 
-    8. Mua bán sim, sim 3G 
+    1. [Mua bán điện thoại](https://nhattao.com/f/dien-thoai.543/)
+    2. [Mua bán máy tính](https://nhattao.com/f/may-tinh.553/)
+    3. [Mua bán máy tính bảng](https://nhattao.com/f/may-tinh-bang.548/)
+    4. [Mua bán camera](https://nhattao.com/f/camera.556/)
+    5. [Mua bán đồng hồ thông minh](https://nhattao.com/f/dong-ho-thong-minh.585/)
+    6. [Mua bán xe](https://nhattao.com/f/xe.532/)
+    7. [Mua bán điện máy](https://nhattao.com/f/dien-may.602/)
+    8. [Mua bán sim, sim 3G](https://nhattao.com/f/sim-dien-thoai.533/)
 
-  4. ###  Liên kết 
+  4. ### Liên kết
 
-    1. Cà phê Tinh tế 
-    2. Khắc tên 
-    3. ChiMua.vn 
-    4. 1Tudien 
-    5. NhacCuaTui 
-    6. 5Giay 
-    7. Webtretho 
-    8. Biker Vietnam 
+    1. [Cà phê Tinh tế](https://tinhte.vn/cafe/)
+    2. [Khắc tên](https://khacten.com/)
+    3. [ChiMua.vn](https://chimua.vn/)
+    4. [1Tudien](http://www.1tudien.com/)
+    5. [NhacCuaTui](https://www.nhaccuatui.com/)
+    6. [5Giay](https://www.5giay.vn/)
+    7. [Webtretho](https://www.webtretho.com/)
+    8. [Biker Vietnam](https://bkvn.com/)
 
-  5. ###  Theo dõi chúng tôi 
+  5. ### Theo dõi chúng tôi
 
-    1. Facebook 
-    2. Youtube 
-    3. Flickr 
-    4. Twitter 
-    5. Google+ 
+    1. [Facebook](https://www.facebook.com/tinhte/)
+    2. [Youtube](https://www.youtube.com/user/tinhtevideo/)
+    3. [Flickr](https://www.flickr.com/photos/tinhtephoto/)
+    4. [Twitter](https://twitter.com/tinhtefan/)
+    5. [Google+](https://plus.google.com/+tinhte/)
 
-  * Chịu trách nhiệm nội dung: Trần Mạnh Hiệp 
-  * ©  2022  Công ty Cổ phần MXH Tinh Tế 
-  * Địa chỉ: 209 Đường Nam Kỳ Khởi Nghĩa, Phường 7, Quận 3, TP.HCM 
-  * Số điện thoại: 02862713156 
-  * MST: 0313255119 
-  * Giấy phép thiết lập MXH số 11/GP-BTTTT, Ký ngày: 08/01/2019 
-
+  * Chịu trách nhiệm nội dung: Trần Mạnh Hiệp
+  * © 2022 Công ty Cổ phần MXH Tinh Tế
+  * Địa chỉ: 209 Đường Nam Kỳ Khởi Nghĩa, Phường 7, Quận 3, TP.HCM
+  * Số điện thoại: 02862713156
+  * MST: 0313255119
+  * Giấy phép thiết lập MXH số 11/GP-BTTTT, Ký ngày: 08/01/2019
 
